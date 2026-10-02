@@ -1,2 +1,2 @@
 # live-tiktok
-For all my dear guaests
+For all my dear guests
